@@ -1,1 +1,0 @@
-# kazuroo-a-kiraly
